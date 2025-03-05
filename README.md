@@ -1,1 +1,1 @@
-https://ichry0.github.io/Paheli/
+https://ichry0.github.io/Ry/
